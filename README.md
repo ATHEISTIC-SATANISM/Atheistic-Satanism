@@ -3,33 +3,13 @@
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=QEM02nvkDAo)
 
 <details>
-  <summary> <p align="center"> $\color{#8a3700}{\textsf{Click for my long ass introduction!}}$ </summary>
+  <summary> <p align="center"> $\color{#8a3700}{\textsf{Before You Interact}}$ </summary>
+  
+<sub>I am a mentally ill, 14-year-old (going to be 15 on July 28) Filipino with an INFP-T type personality. I am mostly AFK so whisper to interact and C+H freely.
 
-### Before You Interact/Friend
-#### Main Intro:
-<sub>hello i go by the name Phil or Sano (or anything), I am a 15-year-old mentally unwell Filipino with an INFP-T personality. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
+<sub> I'm usually dry/awkward and a bit unresponsive around people I just met, if I was energetic/hostile to you at firsy, uhthat wqsnt me or i wsnt okay that time
 
-#### First Impression:
-<sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile/idk), then tht was prolly not me or maybe i waz going insane 😂😂
-
-#### When I feel Comfy:
-<sub>i am childish, dramatic asf, forgetful, self centred (sometimes), sometimes repetetive, i pull references out my ass, and i am corny and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE AND CORNY AND🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.i also dunno how to comfort, im only good at listening sowry :c
-
-### Hyperfixation
-#### Main Interests:
-<sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), doing research and learning new things (gimme facts,,/nf)
-
-#### Content Creator:
-<sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
-
-#### Music Artists/Bands:
-<sub>Cults (recently), Have a Nice Life, Mother Mother, Nine Inch Nails (recently), Mindless Self Indulgence (only listening to PINK and self titled album, no i do not support them anymore)
-
-#### Fictkins:
-
-<sub>Sano Kojima (pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT.), Ashe, Ren Hana, Lawrence
-
-<sub> ill add more soon..
+<sub> I'm childish, dramatic, a bit gullible, forgetful, stupid, still a bit unresponsive, and tend to speak without thinking.. i can be quite clingy and self-centred at times, sorry. i have a knack for insulting, sending death threats (as jokes), joking about violence and such, and i have silly cars humour. Please lemme know if you're uncomfy or want me to back off!
 
 </details>
 
