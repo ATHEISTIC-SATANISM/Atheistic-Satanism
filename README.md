@@ -5,7 +5,7 @@
 <details>
   <summary> <p align="center"> $\color{#8a3700}{\textsf{Before You Interact}}$ </summary>
   
-<sub>I am a mentally ill, 14-year-old (going to be 15 on July 28) Filipino with an INFP-T type personality. I am mostly AFK so whisper to interact and C+H freely.
+<sub>I am a mentally ill, 15-year-old Filipino with an INFP-T type personality. I am mostly AFK so whisper to interact and C+H freely.
 
 <sub> I'm usually dry/awkward and a bit unresponsive around people I just met, if I was energetic/hostile to you at firsy, uhthat wqsnt me or i wsnt okay that time
 
