@@ -4,7 +4,7 @@
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub>I'm Anon, I go by Sano by some.. I am a mentally ill, 15-year-old Filipino. I am mostly AFK so whisper to interact!
+<sub>I'm Anon, I go by other names too.. I am a mentally ill, 15-year-old Filipino. I am mostly AFK so whisper to interact! im awkward/dry to ppl i am not close to, but i am a nice person trust me!!.. oki i fictkin peter dunbar (goth phase) and sano kojima.. idk wht else to add
 
 <sub> :3 :3 :3 :3
 
