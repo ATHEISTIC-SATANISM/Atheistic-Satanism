@@ -1,17 +1,12 @@
-## $\color{#768000}{\textsf{٠🔪ིྀ⭑ . \` God Given \` . .⋆♱}}$
-
-[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=bo7XBKbTayc)
+## I made this out of boredom
+[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=bo7XBKbTayc)
 
 <details>
-  <summary> <p align="center"> $\color{#8a3700}{\textsf{Before You Interact}}$ </summary>
+  <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub>I'm Phil, I go by Sano by some.. I am a mentally ill, 15-year-old Filipino. I am mostly AFK so whisper to interact!
+<sub>I'm Anon, I go by Sano by some.. I am a mentally ill, 15-year-old Filipino. I am mostly AFK so whisper to interact!
 
-<sub> I'm usually dry/awkward around people I just met.Im a nice person tho, dont worry
-
-<sub> Behind all those awkward interactions, I'm childish,a bit gullible and unresponsive, and stupid. Sometimes Im self-centred and I speak without thinking. I have a knack for making death threats, violence, and cannibalism as jokes. if you think I need to be sent to a mental hospital, pls pay for the bills (ok all jokes aside, pls lemme know if i made you uncomfy or u want me to back off). anyways I dont have a DNI list, i block freely
-
-<sub> meowmoew
+<sub> :3 :3 :3 :3
 
 </details>
 
