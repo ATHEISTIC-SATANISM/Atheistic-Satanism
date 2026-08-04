@@ -1,5 +1,5 @@
 ## I made this out of boredom
-[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=bo7XBKbTayc)
+[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=legEvBvw2f4)
 
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
