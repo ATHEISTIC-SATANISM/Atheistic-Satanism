@@ -4,7 +4,9 @@
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub>I'm Anon, I go by other names too.. I am a mentally ill, 15-year-old Filipino. I am mostly AFK so whisper to interact! im awkward/dry to ppl i am not close to, but i am a nice person trust me!!.. oki i fictkin peter dunbar (goth phase) and sano kojima.. idk wht else to add
+<sub>Hello!! my name is Anon, Phil, or Sano (or whatever u wanna call me), I'm a mentally ill 15 y/o Filipino begginer artist :33. im not rly good at socialising aand i can be a bit dry/awkward, quiet, and unresponsive with ppl im not close to.. I like watching youtube shorts (tiktok's a bit infuriating) and drawint and unm idfk. anyways im almost always offtab so w2i, c+h is always encouraged!!
+
+<sub>i fictkin Sano Kojima and Peter Dunbar (goth phase :drool), idm sharing lalal.. ok idk what else to add
 
 <sub> :3 :3 :3 :3
 
