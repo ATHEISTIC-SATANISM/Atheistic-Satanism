@@ -6,7 +6,7 @@
   
 <sub>Hello!! my name is Anon, Phil, or Sano (or whatever u wanna call me), I'm a mentally ill 15 y/o Filipino begginer artist :33. im not rly good at socialising aand i can be a bit dry/awkward, quiet, and unresponsive with ppl im not close to.. I like watching youtube shorts (tiktok's a bit infuriating) and drawint and unm idfk. anyways im almost always offtab so w2i, c+h is always encouraged!!
 
-<sub>i fictkin Sano Kojima and Peter Dunbar (goth phase :drool), idm sharing lalal.. ok idk what else to add
+<sub>i fictkin Sano Kojima, Rasmus, nd Peter Dunbar (goth phase :drool), idm sharing lalal.. ok idk what else to add
 
 <sub> :3 :3 :3 :3
 
